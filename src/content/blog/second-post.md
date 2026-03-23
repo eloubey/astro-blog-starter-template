@@ -1,16 +1,107 @@
 ---
-title: "story 3"
+title: "AITAH for announcing our pregnancy at my brother's wedding after he proposed at mine."
 description: "Lorem ipsum dolor sit amet"
 pubDate: "Jul 15 2025"
 heroImage: "https://image2url.com/r2/default/images/1774216534527-4f230a4c-0cc2-414e-8c6f-f6c726b783c6.png"
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Vitae ultricies leo integer malesuada nunc vel risus commodo viverra. Adipiscing enim eu turpis egestas pretium. Euismod elementum nisi quis eleifend quam adipiscing. In hac habitasse platea dictumst vestibulum. Sagittis purus sit amet volutpat. Netus et malesuada fames ac turpis egestas. Eget magna fermentum iaculis eu non diam phasellus vestibulum lorem. Varius sit amet mattis vulputate enim. Habitasse platea dictumst quisque sagittis. Integer quis auctor elit sed vulputate mi. Dictumst quisque sagittis purus sit amet.
+<p>
+  🧾 Story Summary
 
-Morbi tristique senectus et netus. Id semper risus in hendrerit gravida rutrum quisque non tellus. Habitasse platea dictumst quisque sagittis purus sit amet. Tellus molestie nunc non blandit massa. Cursus vitae congue mauris rhoncus. Accumsan tortor posuere ac ut. Fringilla urna porttitor rhoncus dolor. Elit ullamcorper dignissim cras tincidunt lobortis. In cursus turpis massa tincidunt dui ut ornare lectus. Integer feugiat scelerisque varius morbi enim nunc. Bibendum neque egestas congue quisque egestas diam. Cras ornare arcu dui vivamus arcu felis bibendum. Dignissim suspendisse in est ante in nibh mauris. Sed tempus urna et pharetra pharetra massa massa ultricies mi.
+The OP shares a situation rooted in family tension and unresolved resentment.
 
-Mollis nunc sed id semper risus in. Convallis a cras semper auctor neque. Diam sit amet nisl suscipit. Lacus viverra vitae congue eu consequat ac felis donec. Egestas integer eget aliquet nibh praesent tristique magna sit amet. Eget magna fermentum iaculis eu non diam. In vitae turpis massa sed elementum. Tristique et egestas quis ipsum suspendisse ultrices. Eget lorem dolor sed viverra ipsum. Vel turpis nunc eget lorem dolor sed viverra. Posuere ac ut consequat semper viverra nam. Laoreet suspendisse interdum consectetur libero id faucibus. Diam phasellus vestibulum lorem sed risus ultricies tristique. Rhoncus dolor purus non enim praesent elementum facilisis. Ultrices tincidunt arcu non sodales neque. Tempus egestas sed sed risus pretium quam vulputate. Viverra suspendisse potenti nullam ac tortor vitae purus faucibus ornare. Fringilla urna porttitor rhoncus dolor purus non. Amet dictum sit amet justo donec enim.
+Before OP’s wedding, his brother openly stated he planned to propose during the ceremony. OP clearly said no—he and his wife wanted their wedding to remain focused on their celebration.
 
-Mattis ullamcorper velit sed ullamcorper morbi tincidunt. Tortor posuere ac ut consequat semper viverra. Tellus mauris a diam maecenas sed enim ut sem viverra. Venenatis urna cursus eget nunc scelerisque viverra mauris in. Arcu ac tortor dignissim convallis aenean et tortor at. Curabitur gravida arcu ac tortor dignissim convallis aenean et tortor. Egestas tellus rutrum tellus pellentesque eu. Fusce ut placerat orci nulla pellentesque dignissim enim sit amet. Ut enim blandit volutpat maecenas volutpat blandit aliquam etiam. Id donec ultrices tincidunt arcu. Id cursus metus aliquam eleifend mi.
+Despite this, their mother sided with the brother, arguing it would be a meaningful moment for family members who might not gather again soon. OP stood firm, even threatening to have his brother removed if he went through with it.
 
-Tempus quam pellentesque nec nam aliquam sem. Risus at ultrices mi tempus imperdiet. Id porta nibh venenatis cras sed felis eget velit. Ipsum a arcu cursus vitae. Facilisis magna etiam tempor orci eu lobortis elementum. Tincidunt dui ut ornare lectus sit. Quisque non tellus orci ac. Blandit libero volutpat sed cras. Nec tincidunt praesent semper feugiat nibh sed pulvinar proin gravida. Egestas integer eget aliquet nibh praesent tristique magna.
+But on the wedding day… the brother did it anyway.
+
+When OP considered kicking him out, their mother intervened, threatening to leave as well—effectively forcing OP to let it happen. The moment overshadowed part of OP’s wedding, leaving lingering resentment.
+
+Fast forward to the brother’s wedding.
+
+During a speech meant to welcome the bride into the family, OP instead announced that he and his wife were expecting a baby. The news shifted attention toward them for a large portion of the reception.
+
+Now, the mother is furious, calling OP hypocritical for stealing the spotlight—while OP argues this is exactly what his brother did first.
+
+So… was this justified payback or just repeating bad behavior?
+
+🧠 Behavior & Psychology Analysis
+1. OP (The Retaliator)
+
+OP’s actions are driven by unresolved resentment and a desire for fairness.
+
+Clear original boundary: He explicitly said no to the proposal at his wedding.
+Suppressed anger: He didn’t act in the moment due to family pressure.
+Delayed retaliation: Instead of addressing the issue directly, he chose a mirrored response later.
+
+Psychologically:
+
+This reflects retaliatory justice (“you did it to me, I’ll do it to you”)
+Also shows emotional carryover—he never processed or resolved the initial hurt
+His action wasn’t impulsive—it was calculated symmetry
+2. The Brother
+
+The brother set the entire situation in motion.
+
+Disregard for boundaries: He knowingly went against OP’s explicit wishes.
+Attention-seeking behavior: Proposing at someone else’s wedding is inherently spotlight-stealing.
+Lack of consequences: He faced no real fallout at the time, reinforcing the behavior.
+
+Psychological traits:
+
+Entitlement
+Social opportunism (using events for personal gain)
+Possibly accustomed to being prioritized (family dynamics)
+3. The Mother
+
+The mother plays a critical enabling role.
+
+Favoritism or bias: She supported the brother despite OP’s clear discomfort.
+Emotional pressure: Threatening to leave the wedding forced OP into compliance.
+Inconsistency: She condemns OP’s behavior but justified the same behavior earlier.
+
+Psychologically:
+
+Double standards
+Conflict manipulation (using emotional leverage to control outcomes)
+Reinforces unhealthy family dynamics
+4. The Grandmother
+
+A small but notable role.
+
+She shuts down the mother during the second incident, suggesting:
+Awareness of the hypocrisy
+A more balanced sense of fairness
+⚖️ Verdict
+
+ESH (Everyone Sucks Here)
+
+Let’s break it down:
+
+The Brother:
+Proposed at someone else’s wedding after being told not to ❌
+Disrespected boundaries ❌
+The Mother:
+Enabled the behavior ❌
+Used emotional manipulation ❌
+Displayed clear hypocrisy ❌
+OP:
+Chose revenge instead of resolution ❌
+Repeated the exact behavior he was hurt by ❌
+Took attention away from another couple’s wedding ❌
+💬 Final Thoughts
+
+This situation isn’t about a pregnancy announcement or a proposal—it’s about cycles of disrespect.
+
+OP was wronged first. That part is clear.
+
+But instead of breaking the cycle, he continued it.
+
+And that’s the key takeaway:
+
+Being justified doesn’t always make you right.
+Revenge might feel fair—but it rarely improves the situation.
+
+In the end, two weddings were overshadowed instead of one, and the family dynamic likely became even more strained.
+</p>
